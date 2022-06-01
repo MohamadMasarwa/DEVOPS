@@ -1,0 +1,2 @@
+contributing:
+1)cANT TAKE WITHOUT PERMISSION.
